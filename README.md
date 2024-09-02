@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dianjixiaozi56
-- 👀 I’m interested in writing best codes.
+- 👀 I’m interested in writing the best codes.
 - 🌱 I’m currently learning some programming knowledge.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me my WeChat is： hhh19-8hhh.
